@@ -1,6 +1,6 @@
 ### Villanova, PA
 
-[My blog](http://www.monicadesanctis.blogspot.com)
+[Blogspot](http://www.monicadesanctis.blogspot.com)
 
 [Tumblr](http://desanctis.tumblr.com)
 
