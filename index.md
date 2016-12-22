@@ -1,6 +1,4 @@
-## Monica Desanctis
-
-
+# Monica Desanctis
 
 ### Villanova, PA
 
@@ -11,3 +9,6 @@
 [Quora](https://www.quora.com/profile/Monica-Desanctis)
 
 [LinkedIn](http://www.linkedin.com/in/desanctism)
+
+[Twitter](https://twitter.com/monicad68)
+
