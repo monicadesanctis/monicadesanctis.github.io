@@ -13,3 +13,5 @@
 [Pinterest](https://www.pinterest.com/rufflesnlipstik/)
 
 [YouTube](https://www.youtube.com/channel/UCMs3WMt9C9Vlm1379Fps5BQ)
+
+[Google+](https://plus.google.com/104231557040412741947)
