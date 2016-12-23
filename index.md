@@ -17,3 +17,6 @@
 [Google+](https://plus.google.com/104231557040412741947)
 
 [Etsy](https://www.etsy.com/people/bohochicmom)
+
+[Guided Metitations of Tara Brach](https://www.tarabrach.com/guided-meditations/page/2/)
+
