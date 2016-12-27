@@ -1,3 +1,4 @@
+#Monica Desanctis Homepage
 ### Villanova, PA
 
 [Blogspot](http://www.monicadesanctis.blogspot.com)
@@ -18,5 +19,5 @@
 
 [Etsy](https://www.etsy.com/people/bohochicmom)
 
-[Guided Metitations of Tara Brach](https://www.tarabrach.com/guided-meditations/page/2/)
+[Guided Meditations of Tara Brach](https://www.tarabrach.com/guided-meditations/page/2/)
 
