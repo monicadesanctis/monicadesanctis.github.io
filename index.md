@@ -3,23 +3,23 @@
 
 ### Villanova, PA
 
-[Blogspot](http://www.monicadesanctis.blogspot.com)
+[Monica Desanctis Blogspot](http://www.monicadesanctis.blogspot.com)
 
-[Tumblr](http://desanctis.tumblr.com)
+[Monica Desanctis Tumblr](http://desanctis.tumblr.com)
 
-[Quora](https://www.quora.com/profile/Monica-Desanctis)
+[Monica Desanctis Quora](https://www.quora.com/profile/Monica-Desanctis)
 
-[LinkedIn](http://www.linkedin.com/in/desanctism)
+[Monica Desanctis LinkedIn](http://www.linkedin.com/in/desanctism)
 
-[Twitter](https://twitter.com/monicad68)
+[Monica Desanctis Twitter](https://twitter.com/monicad68)
 
-[Pinterest](https://www.pinterest.com/rufflesnlipstik/)
+[Monica Desanctis Pinterest](https://www.pinterest.com/rufflesnlipstik/)
 
-[YouTube](https://www.youtube.com/channel/UCMs3WMt9C9Vlm1379Fps5BQ)
+[Monica Desanctis YouTube](https://www.youtube.com/channel/UCMs3WMt9C9Vlm1379Fps5BQ)
 
-[Google+](https://plus.google.com/104231557040412741947)
+[Monica Desanctis Google+](https://plus.google.com/104231557040412741947)
 
-[Etsy](https://www.etsy.com/people/bohochicmom)
+[Monica Desanctis Etsy](https://www.etsy.com/people/bohochicmom)
 
 [Guided Meditations of Tara Brach](https://www.tarabrach.com/guided-meditations/page/2/)
 
